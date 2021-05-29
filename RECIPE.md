@@ -1,0 +1,3 @@
+Recipe -  
+
+First take a cauldron and add a 1 teaspoon oil in it and then heat it. And while it is heating chop some onions and tomatoes and when the cauldron gets heated, add the chopped onions and tomatoes and mix them well till the onions didn't get brownish in color then add chilly powder, salt, Maggie masala. Then mix them well with chopped onions and tomatoes and then add our main ingredient **Maggie Packet** by breaking them and then add some water till the level of Maggie and then add some coriander and peas and then cover it with some plate or lid and after 2 minutes your tasty Maggie is ready to go in your stomach.
